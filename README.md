@@ -1,9 +1,44 @@
-NSORO MICHEAL LIGHT KING
-	Story of gods creature’ called NSORO Michael no where born but some where to be found in earth of many troubles and unbelievable people I  have not been able to get all wishes in my life as I was supposed but the main reason is because I was born in right way my dad was young and not enough financial to raise me my mom she was still student and suffering from the bottom line of life that cause make them made  decision to take me inNyagatare  
-	to live with grand parents my mom went in Uganda when I was still little baby 🤱 when I grow up with grand parents with ant rose I thought she is my mother yet she is ant when growing I had my mother went in Uganda but i was still young Ihaven’t care about it My uncle came take me in Kigali to live with him he haven’t marry yet we spend some years to gather
-	 there is time I  live d alone like four years with out any body in house after some times he got married with tricked woman I could know if she like me or not I couldn’t believe that we are going to live in peace because it was like she is my step mother trouble came when she produce I haven’t care about that she will think that I take lot of money
-	 DO YOU BELIVE THAT THERE IS SOMR TIMES 
-YOU HAVE NO BODY TO LISTEN YOU WHEN EARTH
- FIGHT AGAINST YOU IN THE MEANTIME I WILL BE
-INDEPENDENT ON MY OWN LOOK FORWD TO ACHIVE THAT
+💻 NSORO MICHEAL — The Light King of Code
+Legacy of a Developer Born from Silence, Raised by Purpose
+I wasn’t born in a place—I was born in a storm.
+Not in comfort, but in complexity.
+My father was young, my mother still a student, both caught in the struggle of survival.
+So they made a choice: to send me to Nyagatare,
+where my grandparents raised me, and Aunt Rose became the mother I thought I had.
+My real mother had gone to Uganda.
+I was too young to understand, too quiet to ask.
+Later, my uncle brought me to Kigali. We lived together, until silence became my roommate.
+Four years alone in a house—no guidance, no noise, just me and the machine.
+That’s when I met code.
+Not in a classroom. Not in a lab.
+But in the quiet, where most people break—I built.
+While others chased comfort, I chased logic.
+While the world gave me chaos, I wrote structure.
+My uncle married. The house changed.
+I became the invisible one. Suspected. Misunderstood.
+But I didn’t fight—I built.
+I built systems, not arguments.
+I built solutions, not excuses.
+
+🌍 When the Earth Fights You
+There are moments when no one listens.
+When the world seems to rise against you.
+But I learned to rise with it.
+Not with noise—but with code.
+
+Not with revenge—but with resilience.
+
+🚀 Legacy in Motion
+Today, I build more than software.
+I build bridges—for those who feel unheard.
+I build tools—for those who live in silence.
+I build NSORO & MICHEAL Studios—not just as a brand,
+but as a kingdom of light born from digital shadows.
+I wasn’t born to be seen.
+I was born to create what others will see.
+
+Not with revenge—but with resilience.
+
+                                                                                            thnkx to 👑 QUEEN 
+
 
